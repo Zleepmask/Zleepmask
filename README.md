@@ -1,12 +1,21 @@
-# headlock
+# Pathological Facade 
 
-![](https://64.media.tumblr.com/32c65eea5f2eedec07737667681bc597/db7ce6708c01e3ab-83/s75x75_c1/1e58271c4a5c1a1709de0e95e497fd5e51a0eea4.gifv)
-$\color{#649ef2}{\textsf{ " Too late to start, got your heart in a headlock . " }}$
-![](https://64.media.tumblr.com/32c65eea5f2eedec07737667681bc597/db7ce6708c01e3ab-83/s75x75_c1/1e58271c4a5c1a1709de0e95e497fd5e51a0eea4.gifv)
+![]()
+$\color{#f59b89}{\textsf{ " No matter what I say  ,  It's confusing either way . " }}$
+![]()
 
 
-![](https://media.tenor.com/DHKLAeouUR4AAAAj/mera-indus.gif)
+
 <p>  </p>
 
-<p>$\color{#649ef2}{\textsf{ this is a wip tehee }}$</p>
+$\color{#fabc77}{\textsf{  My rentry sucks lmao . Strawpage preffered  }}$
+<p>  </p>
 
+$\color{#f9fa77}{\textsf{  i am in desprete need of friends , . im so bored  }}$
+
+<p>  </p>
+
+$\color{#437ec9}{\textsf{  btw i dont need 2 list my interests anymore . it's obvious by my skins + i'll probably tell you anyway  }}$
+<p>  </p>
+
+![](https://media1.tenor.com/m/QlqHX2TmKTkAAAAd/ghost-and-pals-pathological-facade.gif)
