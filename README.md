@@ -1,10 +1,10 @@
-# Dizzy Paranoia Girl
+# Heavy Metal Lover
 
-$\color{#2eef3b}{\textsf{ " No matter what you heard, you'll never hear the words nobody dares to say ! " }}$
+$\color{#b187f7}{\textsf{ "Silver ! The denny's is that way !! " }}$
 <p></p>
 
-![](https://i.pinimg.com/736x/4a/4e/6a/4a4e6a43ac5483c523b61798e9b2cdf6.jpg)
+![](https://i.pinimg.com/736x/dc/71/59/dc7159991352f0b2fd4a6e35269b313a.jpg)
 
 <p></p>
 
-$\color{#2eef3b}{\textsf{ I change my readme's a lot (depending on my mood ?? idk) }}$
+$\color{#b187f7}{\textsf{ interest list wip }}$
