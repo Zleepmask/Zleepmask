@@ -4,9 +4,12 @@ $\color{#b187f7}{\textsf{ " Silver ! The denny's is that way !! " }}$
 <p></p>
 
 
-<img src="https://static.wikia.nocookie.net/sonic/images/e/ee/Sonic_Channel_2023_11_wallpaper.png/revision/latest/scale-to-width-down/1000?cb=20231102004416" width="480">
 
+<img src="https://64.media.tumblr.com/7efbf38c72fed37750f83555ca800dbe/49833ea7a3e178f3-40/s1280x1920/ae404ffeaf60c0f8eafc6093bd379b7630754b91.gifv" width="800">
 <p></p>
+<img src="https://static.wikia.nocookie.net/sonic/images/c/c8/SC2023AandB.jpg/revision/latest/scale-to-width-down/1000?cb=20230509171913" width="800">
+<img src="https://64.media.tumblr.com/7efbf38c72fed37750f83555ca800dbe/49833ea7a3e178f3-40/s1280x1920/ae404ffeaf60c0f8eafc6093bd379b7630754b91.gifv" width="800">
+
 
 $\color{#b187f7}{\textsf{ Since my interests aren't listed in my strawpage (i dont like my rentry) im just gonna type my interests here}}$
 <p></p>
