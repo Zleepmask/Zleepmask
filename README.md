@@ -11,10 +11,10 @@
 
 <p align="center">$\color{#57343c}{\textsf{ Since my interests aren't listed in my strawpage (i dont like my rentry) im just gonna type my interests here}}$
 
-$\color{#57343c}{\textsf{ Objectshows (II , AIB , PPT2 + unlisted), Party Crashers , Epither Erased , Sonic , Epic the musical}}$
-$\color{#57343c}{\textsf{ Omori , Total drama/Disventure camp , Alien stage , Pjsk/Vocaloid/Evillious Chronicles , Dandys world , Studio Investigrave Games }}$
-$\color{#57343c}{\textsf{ Danganronpa(fangames) , Voltes V , Daybreak/Flicker/Airplane story (roblox) , Ghost and Pals , Regretavator?? }}$
-$\color{#57343c}{\textsf{ Tangled/the series , Aphmau roleplays (my inner demons mostly) , Parkour Civilization }}$
+<p align="center">$\color{#57343c}{\textsf{ Objectshows (II , AIB , PPT2 + unlisted), Party Crashers , Epither Erased , Sonic , Epic the musical}}$
+<p align="center">$\color{#57343c}{\textsf{ Omori , Total drama/Disventure camp , Alien stage , Pjsk/Vocaloid/Evillious Chronicles , Dandys world , Studio Investigrave Games }}$
+<p align="center">$\color{#57343c}{\textsf{ Danganronpa(fangames) , Voltes V , Daybreak/Flicker/Airplane story (roblox) , Ghost and Pals , Regretavator?? }}$
+<p align="center">$\color{#57343c}{\textsf{ Tangled/the series , Aphmau roleplays (my inner demons mostly) , Parkour Civilization }}$
 
-$\color{#57343c}{\textsf{ I have a wip skin of tunner but i dont even know if i'd consider myself 2 be in the fandom , }}$
+<p align="center">$\color{#57343c}{\textsf{ I have a wip skin of tunner but i dont even know if i'd consider myself 2 be in the fandom , }}$
 </p>
