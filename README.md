@@ -19,4 +19,4 @@ $\color{#57343c}{\textsf{ Tangled/the series , Aphmau roleplays (my inner demons
 
 <p></p>
 
-$\color{#b187f7}{\textsf{ I have a wip skin of tunner but i dont even know if i'd consider myself 2 be in the fandom , }}$
+$\color{#57343c}{\textsf{ I have a wip skin of tunner but i dont even know if i'd consider myself 2 be in the fandom , }}$
