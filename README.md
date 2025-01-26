@@ -13,7 +13,7 @@
 <p align="center">$\color{#57343c}{\textsf{ Objectshows (II , AIB , PPT2 + unlisted), Party Crashers , Epither Erased , Sonic , Epic the musical}}$
 <p align="center">$\color{#57343c}{\textsf{ Omori , Total drama/Disventure camp , Alien stage , Pjsk/Vocaloid/Evillious Chronicles , Dandys world , Studio Investigrave Games }}$
 <p align="center">$\color{#57343c}{\textsf{ Danganronpa(fangames) , Voltes V , Daybreak/Flicker/Airplane story (roblox) , Ghost and Pals , Regretavator?? }}$
-<p align="center">$\color{#57343c}{\textsf{ Tangled/the series , Aphmau roleplays (my inner demons mostly) , Parkour Civilization }}$
+<p align="center">$\color{#57343c}{\textsf{ Tangled/the series , Aphmau roleplays (my inner demons mostly) , Parkour Civilization , Scott Pilgrim}}$
 
 <p align="center">$\color{#57343c}{\textsf{ I have a wip skin of tunner but i dont even know if i'd consider myself 2 be in the fandom , }}$
 </p>
