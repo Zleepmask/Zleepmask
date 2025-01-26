@@ -1,4 +1,4 @@
-
+# $\color{#57343c}{\textsf{ No time to memorize }}$
 <p></p>
 
 
