@@ -1,4 +1,4 @@
-# $\color{#57343c}{\textsf{ All for pony town ^-^ }}$
+# $\color{#57343c}{\textsf{ All for pony town >-< }}$
 <p></p>
 
 
