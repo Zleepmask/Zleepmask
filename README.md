@@ -10,7 +10,7 @@
 
 <p align="center"><h3>$\color{#57343c}{\textsf{ Since my interests aren't listed in my strawpage (i dont like my rentry) im just gonna type my interests here}}$</h3>
 
-<p align="center">$\color{#57343c}{\textsf{ Objectshows (II , AIB , PPT2 + unlisted), Party Crashers , Epither Erased , Sonic , Epic the musical}}$
+<p align="center">$\color{#57343c}{\textsf{ Objectshows (II , AIB , PPT2 + unlisted), Party Crashers , Epithet Erased , Sonic , Epic the musical}}$
 <p align="center">$\color{#57343c}{\textsf{ Omori , Total drama/Disventure camp , Alien stage , Pjsk/Vocaloid/Evillious Chronicles , Dandys world , Studio Investigrave Games }}$
 <p align="center">$\color{#57343c}{\textsf{ Danganronpa(fangames) , Voltes V , Daybreak/Flicker/Airplane story (roblox) , Ghost and Pals , Regretavator?? , Crk/Crob}}$
 <p align="center">$\color{#57343c}{\textsf{ Tangled/the series , Aphmau roleplays (my inner demons mostly) , Parkour Civilization , Scott Pilgrim}}$
